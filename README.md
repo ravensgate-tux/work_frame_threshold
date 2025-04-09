@@ -32,8 +32,39 @@ Ace of Wandsを使用し、ワンドで開閉を行う、もっとも能動的�
 
 ## 🔮 Ritual
 
-> （Ace of Wandsを用いた炎による突破、ワンドを用いて障壁を焼き払うワーク。全文は前述。）
+> I place the Ace of Wands at the center of the temple.
+> It burns—not with destruction, but with beginning.
 
+> This is not a fire lit by the world.
+> It is the fire I carry within.
+
+> Hekate, Flame at the Threshold,
+> Ignite what sleeps in shadow.
+
+> I raise my wand and trace a line of fire before me.
+> The barrier is no more. Only light remains.
+
+> I step forward.
+> Not in fear, but in fire.
+
+> And the threshold is behind me.
+
+> ワンドのエースを神殿の中央に置く。
+> それは破壊の炎ではなく、始まりの炎で燃えている。
+
+> これは外の世界が灯した火ではない。
+> 私の内に、すでにあった火なのだ。
+
+> しきいの炎を灯すヘカテよ、
+> 影の中に眠る力を呼び覚ましてください。
+
+> 私はワンドを掲げ、目の前に炎の線を描く。
+> 障壁はもはや存在しない。残っているのは光だけだ。
+
+> 私は一歩を踏み出す。
+> 恐れではなく、火とともに。
+
+> そして、しきいは背後にある。
 
 ## 🔚 Closing the Circle of the Work
 
